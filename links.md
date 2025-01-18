@@ -1,0 +1,2 @@
+- https://discord.com/channels/1127340805741359164/1327993724495724605
+- https://github.com/opensourcecorp
